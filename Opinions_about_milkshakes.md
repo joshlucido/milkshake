@@ -1,6 +1,6 @@
-# Milkshakes are terrible.
+# Milkshakes are delicious.
 
-It's just frozen cow goop. There are no tasty examples of the genre.
+[Milkshakes are] proof that god exists and he wants us to be happy. --Ben Franklin
 
 ## A haiku about milkshakes
 
