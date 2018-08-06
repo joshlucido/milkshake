@@ -1,6 +1,6 @@
 # Milkshakes are terrible.
 
-It's just frozen cow goop. There are no decent examples of the genre.
+It's just frozen cow goop. There are no tasty examples of the genre.
 
 ## A haiku about milkshakes
 
